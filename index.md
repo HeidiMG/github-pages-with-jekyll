@@ -1,3 +1,7 @@
-# Welcome to my blog
+# Hi there. Pull up a stool.
 
-I'm glad you are here. I plan to talk about ...
+Calm down
+what happens
+happens mostly
+without you.
+-Josef Albers
